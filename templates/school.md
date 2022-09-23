@@ -1,0 +1,1 @@
+It was _FOOD_ day at school, and _NAME_ was super _ADJECTIVE_ for lunch. But when she went outside to eat, a _NOUN_ stole her _FOOD_! _NAME_ chased the _NOUN_ all over school. She _VERB1_, _VERB2_, and _VERB3_ through the playground. Then she tripped on her _NOUN_ and the _NOUN_ escaped! Luckily, _NAME_’s friends were willing to share their _FOOD_ with her.
